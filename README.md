@@ -89,7 +89,7 @@ Le statut **Part-Time** présente le risque le plus élevé parmi les employés 
 ## 📄 Rapport complet
 
 Le rapport détaillé (analyse, visualisations et interprétations) est disponible ici :
-**[Voir le rapport complet en pdf](https://drive.google.com/file/d/1RYuldKmYmUQiO5ctBMxbuNlIDHrTeOm1/view?usp=drive_link)**
+**[Voir le rapport complet en pdf](https://drive.google.com/file/d/1tax1lbx_5h2ZmfyqW4cZQqMIxrcS1ctj/view?usp=drive_link)**
 
 ---
 
